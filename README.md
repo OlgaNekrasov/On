@@ -1,7 +1,6 @@
 1aaxcas2# On
 xccsxagfgfgrdg
-sasasdsafasxsxsda
-vvdvвааыав
+sasasdsafasxsxs
 erwerwefddwadq
 dsadsdXZCSADSAXz
 dsdzsxs

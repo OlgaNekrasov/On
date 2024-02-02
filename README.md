@@ -6,7 +6,3 @@ dsadsdXZCSADSAX
 vbbxdfgdgsr
 vf
 fgxfgffdgz
-ghjgkghcm
-vvdfgddfsdd
-bjbjkhjh
-bgnhgckjk

@@ -7,5 +7,4 @@ vbbxdf
 hgfhfghfghf
 fbfdbgdfgsdfds
 dgrgsrdgsdfsvvfsdfsadasw
-парпрвапвяы
-gnhfdgdfzgdg
+па
